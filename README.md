@@ -5,4 +5,5 @@ Kali ini, dengan senang Hati saya persembahkan kepada Tuhan dan Alam Semesta Sei
 Di Dunia ini tidak dapat dimungkiri atas keberadaan kebaikan maupun keburukan, dalam perbedaan kedua sifat tersebut selalu ada perselisihan satu sama lain. maka dari itulah kita harus mencapai kesadaran diri tertinggi untuk mencapai ini, ini bukanlah memperdebatkan mana yang benar ataukah salah, Tapi inilah yang disebut dengan netral, dimanapun berada, Kasih Sayang Tuhan itu Tidak Ada Batasannya, Sehingga Apabila kita dalam keadaan Netral, dapat menemukan  solusi diantara keduanya, bahkan dalam kejadian yang lebih kompleks sekalipun.
 Maka dari itu, Brakhati Font dibuat dengan harapan bahwa bentuknya, Adalah Netral (Masih Seperti Sediakala), yang sudah menjadi Murni dan Netral.
 ### Link Download
-Saat ini masih tahap pengembangan, dalam proses. (Belum Tersedia)
+Sudah Selesai, cek link bagian folder ini,
+- Semoga dengan adanya Brakhati Font ini bisa membawa Kesadaran Kebersaksian, Aamiin, Segala Puji Untuk Tuhan Seluruh Alam Semesta.
